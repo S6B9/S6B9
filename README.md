@@ -3,7 +3,7 @@
 (𝐒6𝐁9 "" 𝐁𝐃 𝐂𝐋𝐎𝐎𝐍𝐄𝐑  🇧🇩 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="24px">
  
 <p align="center"><a href="https://github.com/S6B9"><img src="https://j.top4top.io/p_1966skgw80.jpg" height='195' alt="S6B9">
-<p align="center"><a href="https://wa.me/FLjIFPIxXXIIspPTodZ0Lq"><img title="whatsapp" src="https://img.shields.io/badge/Whatsapp-black?style=for-the-badge&logo=whatsapp"></a>
+<p align="center"><a href="https://wa.me/chat.whatsapp.com/FLjIFPIxXXIIspPTodZ0Lq"><img title="whatsapp" src="https://img.shields.io/badge/Whatsapp-black?style=for-the-badge&logo=whatsapp"></a>
 <img src="https://github.com/MRVIVEK-CODER/MRVIVEK-CODER/blob/main/md7Oqrf.gif " width="300%"> 
 <p align="center">
   <img src="https://i.pinimg.com/originals/57/dd/7b/57dd7be982ce9049be3dc1ddacc100cb.gif" width="30%">
